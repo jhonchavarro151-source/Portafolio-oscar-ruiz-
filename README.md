@@ -55,6 +55,6 @@ Participé en la elaboración y presentación de un trabajo académico en grupo.
 
 ## Contacto
 
-**Correo electrónico:** oscarruizchavarro"gmail.com
+**Correo electrónico:** oscarruizchavarro@gmail.com
 
 > Por seguridad, no publico mi dirección de residencia ni información de documentos personales.
