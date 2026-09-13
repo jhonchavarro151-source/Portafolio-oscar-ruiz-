@@ -1,4 +1,4 @@
-# Portafolio Digital - Oscar Ruiz Chavarro
+<h1 style="color:#8B3A62;">Portafolio Digital - Oscar Ruiz Chavarro</h1>
 
 ## Presentación
 
